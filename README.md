@@ -1,5 +1,8 @@
 # UpOnly Alpha Only
 
+## [OBJ on his journey into crypto, investing, NFTs, and more](https://uponly.tv/obj-on-his-journey-into-crypto-investing-nfts-and-more/)
+[@obj](https://twitter.com/obj): Just talking about success and how it's a journey. You know, for a guy like me I came into the league I took off early, I've hit a bumps in the road, I hit another bump in the road, I hit, you know, potholes in the road and you just feel, you know, everything's crashing down. And there's, you know, times in life where you want to give up I think, you know, not like a fight on type message, but it's like to keep going, you know, there's dreams and goals and accomplishments that you want to achieve. Don't ever let anything deter you or steer you away from ultimately where you feel in your heart you should be and where you want to be. So my message would just be always to go after and chase your dream. Don't be scared to fail, because all the ways to succeed is probably to have failed. So Amen. Just keep going.
+
 ## [Avi Felman of Blocktower: Crypto is mid-cycle](https://uponly.tv/avi-felman-of-blocktower-crypto-is-mid-cycle/)
 [@AviFelman](https://twitter.com/AviFelman): Have the memory of a goldfish. And that doesn't mean we have a goldfish memory of a goldfish. And it just means if something goes wrong, just do your best to forget and move on. And don't dwell on it. Because that's just that's just how you record yourself. I just genuinely apply that every single day when I'm trading. Because you know, you make you make mistakes all the time. You can learn from your mistakes, but you can't dwell on your mistakes.
 
